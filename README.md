@@ -1,2 +1,2 @@
 # Sanlee27.github.io
-resume page
+이력서 준비
